@@ -1,0 +1,2 @@
+# SnapDate
+Privacy Policy
